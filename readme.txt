@@ -1,1 +1,2 @@
 Lejin Joy
+Harman International
